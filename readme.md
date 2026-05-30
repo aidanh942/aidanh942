@@ -1,4 +1,4 @@
-# Kennyfan382 (Aidan Hammond)
+# aidanh942 (Aidan Hammond)
 💻I like coding, cybersecurity, and watching South Park. <br>🏴󠁧󠁢󠁷󠁬󠁳󠁿Studying computer science at Aberystwyth University<br>📡I am the Vice President of Aberystwyth Telsoc + Committee for Aberystwyth Compsoc<br>Discord: _aidan_3523 
 
 
