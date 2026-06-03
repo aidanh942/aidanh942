@@ -1,5 +1,5 @@
 # aidanh942 (Aidan Hammond)
-💻Coding hobbyist and aspiring penetration tester <br>🏴󠁧󠁢󠁷󠁬󠁳󠁿Studying computer science at Aberystwyth University<br>📡I am the Vice President of Aberystwyth Telsoc + Committee for Aberystwyth Compsoc<br>Discord: _aidan_3523 
+💻Coding hobbyist, aspiring to work in cyber security <br>🏴󠁧󠁢󠁷󠁬󠁳󠁿Studying computer science at Aberystwyth University<br>📡I am the Vice President of Aberystwyth Telsoc + Committee for Aberystwyth Compsoc<br>Discord: _aidan_3523 
 
 
 ## 🌐 Socials:
